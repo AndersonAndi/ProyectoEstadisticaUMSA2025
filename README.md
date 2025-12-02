@@ -1,0 +1,2 @@
+# ProyectoEstadisticaUMSA2025
+ProyectoEstadisticaUMSA2025
